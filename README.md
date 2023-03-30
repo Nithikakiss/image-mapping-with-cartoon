@@ -1,1 +1,0 @@
-# image-mapping-with-cartoon
